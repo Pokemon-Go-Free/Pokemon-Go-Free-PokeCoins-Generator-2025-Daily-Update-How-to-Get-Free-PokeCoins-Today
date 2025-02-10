@@ -2,7 +2,7 @@
 
 Welcome to the **Pokemon Go Free PokeCoins Generator 2025 Daily Update**! Today, we have an exciting opportunity for all trainers who want to enhance their Pokemon Go experience without spending a dime. We understand how important it is to level up and obtain the best gear in the game, and the key to doing so often lies in acquiring PokeCoins.
 
-### [✅👉CLICK HERE TO GET NOW FREE!](https://freeforyou.xyz/pokemon/go/free/)
+### [✅👉 CLICK HERE TO GET NOW FREE](https://justfree.xyz/pokemon/go/)
 
 In this article, you’ll discover how to get **free PokeCoins** using our latest 2025 **PokeCoins Generator**. We’ve compiled all the details you need to access this amazing offer. Keep reading to learn how to claim your **free PokeCoins** and make the most of this daily update!
 
